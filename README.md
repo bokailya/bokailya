@@ -1,1 +1,1 @@
-[Curriculum Vitae](https://bokailya.github.io)
+[Curriculum Vitae](https://ilyaboka.github.io)
